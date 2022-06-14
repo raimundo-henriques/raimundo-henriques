@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **raimundo.henriques@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFDkYkUnXc/t66DO3CQb6_mO-6hPKLWaA/view?utm_content=DAFDkYkUnXc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFDkYkUnXc/t66DO3CQb6_mO-6hPKLWaA/view?utm_content=DAFDkYkUnXc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experience [here](https://www.canva.com/design/DAFDkYkUnXc/t66DO3CQb6_mO-6hPKLWaA/view?utm_content=DAFDkYkUnXc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I am about to obtain a PhD in Literary Theory 🎓**
 

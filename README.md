@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Raimundo Henriques</h1>
-<h3 align="center">Le Wagon Lisbon Graduate - Fullstack Developer</h3>
+<h3 align="center">Le Wagon Lisbon Graduate - Full-stack Developer</h3>
 
 - 🔭 I’m currently working on [MEEplay](https://github.com/raimundo-henriques/meeplay)
 
